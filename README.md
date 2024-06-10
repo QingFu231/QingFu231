@@ -1,6 +1,6 @@
 - 👋 Hi, I’m NanGongXiuLin
 
-- 👀 I’m interested in Cat girl
+- 👀 I’m interested in Pixiv.net
 
 - 🌱 I’m currently learning HTML
 
